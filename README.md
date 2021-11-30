@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RicardinioGo96
+- 👀 I am just an IT guy that loves Technology, Japan, 80s music, History and Alternate History.
+- 🌱 I’m currently trying learning everything and anything at the same time...
+- 💞️ I’m looking to collaborate on whatever I have the will to work onto.
